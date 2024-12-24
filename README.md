@@ -1,5 +1,7 @@
-<!--
-![image](https://github.com/user-attachments/assets/af3a95f3-9a7f-4d89-91a0-5d5014cef09c)
+<div id="header" align="center">
+  
+![um. art by me again. ITS SO UGLY I HATE IT AAAA](https://files.catbox.moe/qfa3x6.png)
 
-  [rentry](https://rentry.co/poof)  [prns cc](https://pronouns.cc/vee)
--->
+<p align="center"
+
+ [rentry](https://rentry.co/poof) ⊹ [prns cc](https://pronouns.cc/vee)

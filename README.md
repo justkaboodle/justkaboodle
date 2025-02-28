@@ -4,6 +4,6 @@
 
 <p align="center"
 
- 
-  
-(｡˙ ▿ ˙)   [s](https://kaboodle.straw.page/)trawpage｡
+(｡˙ ▿ ˙)   [s](https://kaboodle.straw.page/)trawpage｡   
+
+    [r](rentry.co/poof)entry｡   [r](rentry.co/justkaboodle)entry²｡

@@ -6,4 +6,4 @@
 
 (｡˙ ▿ ˙)   [s](https://kaboodle.straw.page/)trawpage｡   
 
-    [r](rentry.co/poof)entry｡   [r](rentry.co/justkaboodle)entry²｡
+    [r](https://rentry.co/poof)entry｡   [r](https://rentry.co/justkaboodle)entry²｡

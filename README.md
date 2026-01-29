@@ -4,8 +4,8 @@
 <div id="header" align="center">      
 <p align="center">
 　</br>
-      <a href="https://rentry.co/justkaboodle">r</a>entry｡   ꒰𓏼´  `𓏼  ྀིᥩ</br>
- ིྀ‿◞◟      
+      <a href="https://rentry.co/justkaboodle">r</a>entry｡   <a href="https://pronouns.cc/@vee">p</a>rns.cc｡   ꒰𓏼´  `𓏼  ྀིᥩ</br>
+ ིྀ‿◞◟ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
  </p></br></p>
 
 　
